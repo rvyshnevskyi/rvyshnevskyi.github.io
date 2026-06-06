@@ -1,1 +1,0 @@
-# rvyshnevskyi.github.io
